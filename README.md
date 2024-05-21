@@ -1,5 +1,5 @@
 
-.....College Search App....                                                           
+....College Search App...                                                          
 
 Click To Install The App : 
 
